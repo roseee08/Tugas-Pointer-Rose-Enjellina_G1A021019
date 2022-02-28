@@ -1,0 +1,1 @@
+# Tugas-Pointer-Rose-Enjellina_G1A021019
